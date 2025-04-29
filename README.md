@@ -1,1 +1,0 @@
-# hattiza.com
